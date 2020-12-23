@@ -1,4 +1,4 @@
-# 🤖Naga-Bot🤖
+# 🤖Bot-MR.02🤖
 BOT WHATSAPP TERMUX ONLY BY Sekaii Mod
 
 ### Alat dan Bahan
@@ -73,4 +73,4 @@ BOT INI KHUSUS HP/TERMUX DOANG YAH,JIKA MAU RE-UPLOAD CANTUMKAN NAMA SAYA (NFQ S
 
 ## Sosial Media Admin
 * [`Youtube Admin`](https://youtube.com/channel/UC7di1zjUfd3h4A58a2uscIw) 
-* [`WhatsApp Admin `](https://wa.me/6283807588767)
+* [`WhatsApp Admin `](https://wa.me/6283808215556)
