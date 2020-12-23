@@ -9,7 +9,7 @@ Siapin alat dan bahannya.
 > jaringan internet kenceng,kuota+
 > penyimpanan yang memadai
 > aplikasi whatsapp
-> jika error hubungi 088235435804
+> jika error hubungi 083808215556
 > aplikasi termux
 > kopi nya diminum..
 ```
